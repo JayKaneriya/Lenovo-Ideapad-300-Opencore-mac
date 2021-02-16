@@ -1,0 +1,1 @@
+# Lenovo-Ideapad-3000-Opencore-mac
