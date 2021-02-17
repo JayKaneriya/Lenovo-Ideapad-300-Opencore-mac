@@ -1,1 +1,1 @@
-# Lenovo-Ideapad-3000-Opencore-mac
+# Lenovo-Ideapad-300-Opencore-mac
